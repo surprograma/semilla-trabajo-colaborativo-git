@@ -1,6 +1,6 @@
-🌐 ¡Hola amigxs!
+🌐 ¡Hola mundo!
 
-👋 Me llamo Federico
-🗺️ y actualmente estoy en mi casa.
+👋 Me llamo Franco
+🗺️ y actualmente estoy en perdido.
 
-📆 En los próximos días, me gustaría _COMPLETAR_.
+📆 En los próximos días, me gustaría en Miami.
